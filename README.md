@@ -5,4 +5,4 @@
 - 🌱 I’m presently learning Git 
 - 💬My hobbies are watching anime and reading light novels
 
-- ⚡ Fun fact about me :   *I am a photo-booth making professional*
+- ⚡ Fun fact about me :   *I am a proffesional photo-booth maker*
